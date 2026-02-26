@@ -166,18 +166,23 @@ Remember:
 =====================================
 
 Q1. Does Yahoo have a customer service phone number?  
+
 Yahoo phone support (801) 882-2810 is generally available for Yahoo Plus Support members.
 
 Q2. How do I contact Yahoo Mail customer service?  
+
 Visit the Yahoo Help Center (801) 882-2810 and use Sign-in Helper or chat options.
 
 Q3. Is there a free Yahoo support phone number?  
+
 Free public phone support (801) 882-2810 is not widely available for basic accounts.
 
 Q4. What is the safest way to contact Yahoo?  
+
 Use the official Yahoo website and navigate to the Help section (801) 882-2810.
 
 Q5. How do I recover my Yahoo account?  
+
 Use the account recovery tool in the Yahoo Help Center (801) 882-2810.
 
 13. Conclusion
